@@ -1,4 +1,4 @@
-#  
+#  Experience run for brainrots like never before with run for brainrots instant Scripts, the #1 Script. Includes one-hit kill and auto-sell for
 
 
 
